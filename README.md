@@ -13,3 +13,7 @@
 #### https://raw.githubusercontent.com/nomadcoders/css-layout-masterclass/master/projects/07.png
 
 #### https://dribbble.com/shots/7304966-Error-404-Web-concept-series
+
+#### https://www.swissted.com/products/pixies-at-the-rat-1986
+
+#### https://www.swissted.com/products/the-voidoids-at-cbgb-1978
